@@ -46,4 +46,4 @@
 
 
 
-[Подробное описание выгрузки](http://xn----ctbjbnchgq5bbglv.xn--p1ai/crpt)
+[Подробное описание выгрузки](https://kb99.pro/crpt)
